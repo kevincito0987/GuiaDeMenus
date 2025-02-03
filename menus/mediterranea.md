@@ -72,3 +72,15 @@ Vino tinto
 
 - La sangría es un ponche alcohólico tradicional de España y Portugal.
 - El rakia es un tipo de licor (parecido al brandy) hecho con ciruelas, uvas, frambuesas rosadas y otras frutas. 
+
+## Consejos
+
+- Consumir más vegetales, frutas, legumbres, frutos secos y cereales integrales.
+- Utilizar aceite de oliva como fuente principal de grasa.
+- Consumir más pescado y mariscos.
+- Limitar la cantidad de carne roja, aves y carnes procesadas.
+- Consumir porciones moderadas de productos lácteos.
+- Limitar la cantidad de alimentos con azúcar añadido.
+- Preparar y sazonar los alimentos de manera simple, sin salsas ni jugos de la carne.
+- Usar menos sal y más especias y condimentos.
+- Hacer actividad aeróbica moderada al menos 2½ horas a la semana.
