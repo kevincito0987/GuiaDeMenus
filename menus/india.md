@@ -53,3 +53,16 @@ La comida india se caracteriza por ser colorida, de sabores y aromas variados. E
 
 - Bebida refrescante con sabor ácido y picante que equilibra los sabores ricos y picantes de la comida india
 
+## Consejos
+
+- Evitar el agua del grifo.
+- Pedir que el plato sea "sin picante" o "poco-picante".
+- Ser selectivo con la comida callejera.
+- Asegurarse de que los alimentos estén frescos.
+- Evitar el aceite que huele mal.
+- Comer lentamente para evitar comer en exceso.
+- Permanecer en posición vertical durante al menos dos horas después de comer.
+- Planificar con anticipación y comer comidas más pequeñas a lo largo del día.
+- Reunir todos los ingredientes.
+- Freír las cebollas en aceite hasta que adquieran un color marrón y desaparezca el olor penetrante.
+- Moler todas las especias para hacer garam masala en un Nutribullet o en un molinillo de café. 
