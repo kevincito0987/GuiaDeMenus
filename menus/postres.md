@@ -28,3 +28,30 @@ El postre que presentaremos a continuación tal vez no es muy conocido, pero pue
 
 **Pastéis de Belém**, es un postre originario de **Portugal**, perfecto para compartir. Según cuenta la leyenda, la receta de este postre lleva en secreto por más de 200 años y solo 3 personas en el mundo la conocen. Este postre fue creado a principios del siglo XIX, como una iniciativa de negocio en la época de revolución en Portugal. Así que tengan por seguro que probarlas será todo un privilegio de esta lista.
 
+
+## Bebidas Recomendadas
+
+**Café**
+
+- El café negro, expreso, cortado o capuchino es una buena opción para acompañar postres.
+
+**Té**
+
+- Los tés de menta, anís, verde o de frutos silvestres son una buena opción para acompañar postres.
+
+**Vinos**
+
+- Los vinos blancos ligeros, aromáticos y frutales son una buena opción para acompañar postres de fruta o de vainilla.
+- Los vinos dulces o moscato son una buena opción para acompañar pasteles secos.
+- Los vinos espumantes o champán son una buena opción para acompañar pasteles frescos.
+
+**Licores**
+
+- El brandy es una buena opción para acompañar postres muy dulces.
+- El Oporto y el Jerez son una buena opción para acompañar manzanas asadas.
+- El Marsala y el Oporto son una buena opción para acompañar chocolates y turrones.
+- El whisky, en especial los con notas ahumadas o de turba, son una buena opción para acompañar postres con sabores intensos y caramelizados.
+
+**Cocteles**
+
+- Los cocteles de autor o cremosos son una buena opción para acompañar postres.
