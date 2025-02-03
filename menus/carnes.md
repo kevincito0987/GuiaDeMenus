@@ -2,7 +2,7 @@
 
 ## Descripcion
 
-Las carnes se caracterizan por ser el grupo de alimentos que aporta proteínas de alta calidad y la mejor fuente de hierro. Sin embargo, la anemia está presente en la mitad de nuestras embarazadas y el consumo de hierro es insuficiente en el 90% de los niños menores de dos años.
+Las carnes se caracterizan por ser el grupo de alimentos que aporta proteínas de alta calidad y la mejor fuente de hierro. Sin embargo, la anemia está presente en la mitad de nuestras embarazadas y el consumo de hierro es insuficiente en el 90% de los niños menores de dos años. La carne puede ser roja, como la del ganado bovino, ovino o porcino, o de aves de corral. El sabor y las características de la carne dependen del animal del que proviene y de la forma en que se cocine. 
 
 ## Platos Principales
 
