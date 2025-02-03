@@ -13,3 +13,35 @@ Las carnes se caracterizan por ser el grupo de alimentos que aporta proteínas d
 - Bistec Encebollado Rápido y Fácil. ...
 - Costilla de cerdo al horno. ...
 - Albóndigas de **carne** al pistacho.
+
+## Bebidas Recomendadas
+
+**Vinos**
+
+- El vino tinto es una opción clásica para acompañar carnes rojas. Algunos tipos de vino tinto que combinan bien con la carne roja son el Cabernet Sauvignon, Malbec, Carménère, Tempranillo y Zinfandel.
+- El vino blanco es una buena opción para acompañar pollo y pescado a la parrilla.
+- El vino rosado es una opción versátil que puede combinar con platos más ligeros.
+
+**Destilados**
+
+- El whisky ahumado es un buen acompañamiento para la carne de res.
+- El bourbon con amargos y un toque de dulce puede realzar los sabores terrosos de cortes especiales como el pato o carnes de caza.
+- El gin-tonic es una buena opción para el pollo y los camarones.
+
+**Bebidas sin alcohol**
+
+- El jugo de arándano o de granada son alternativas sin alcohol al vino tinto.
+- El agua infundida es una opción natural que puede complementar platos picantes. 
+
+## Consejos
+
+- Mantén la carne cruda separada de la cocida.
+- Lava los utensilios que hayan estado en contacto con carne cruda.
+- No uses el mismo utensilio para cocinar carne cruda y cocida.
+- Recalienta la carne pre-cocida hasta los 74°C.
+- Si cocinas carne congelada, suma de 10 a 20 minutos por 1/2 kilo.
+- No cocines ni recalentes la carne en recipientes de plástico, salvo que sean para microondas.
+- No pruebes carne, adobo ni salsa no cocida.
+- Medir el tiempo de cocción con un termómetro.
+- Elige cortes magros y retira la grasa visible antes de cocinar.
+- Hornear, estofar y guisar son formas saludables de cocinar la carne.
