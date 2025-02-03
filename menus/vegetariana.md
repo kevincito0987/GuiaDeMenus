@@ -35,3 +35,16 @@ Una deliciosa receta clásica de la cocina italiana que sólo necesita ingredien
 - Jugo Energético de Zanahoria y Remolacha. ...
 - Batido de Vainilla con Menta. ...
 - Batido de Piña y Plátano.
+
+## Consejos
+
+- Consumir alimentos fortificados, como cereales, panes, leche de soya o de almendra, y jugos de fruta.
+- Incluir una fuente de proteína en cada comida.
+- Reducir el consumo de alimentos ricos en grasa, azúcar y sal.
+- Consumir alimentos ricos en calcio, hierro y vitamina B12.
+- Consumir alimentos ricos en zinc, especialmente si eres mujer embarazada, niño o anciano.
+- Consumir sal yodada o algas marinas de forma regular.
+- Evitar el consumo de bebidas alcohólicas.
+- Utilizar técnicas de cocina saludables, como al horno, al vapor, a la plancha, etc.
+- Consumir 2 litros de agua al día.
+- Realizar ejercicio físico todos los días.
