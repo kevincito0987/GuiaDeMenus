@@ -3,3 +3,10 @@
 ## Descripción
 
 La comida japonesa se caracteriza por su sencillez, elegancia y sabores naturales. Se basa en ingredientes frescos y de temporada, y se prepara con técnicas que realzan su sabor. 
+
+## Platos Principales
+
+- **Sushi**: Es una de las comidas japonesas más populares.
+- **Ramen**: Es una de las comidas japonesas más populares.
+- **Tempura**: Es una de las comidas japonesas más populares.
+- **Yakitori**: Es una de las comidas japonesas más populares.
