@@ -49,3 +49,51 @@ A la comida China se le da un sentido del gusto con las artes culinarias basánd
 - Los vinos espumosos como el champán o el Prosecco son una buena opción.
 - Los vinos blancos secos o semisecos de cuerpo ligero a medio son una buena opción.
 - Los vinos tintos con mucha fruta madura y acidez moderada, como el Malbec, el Cabernet del Nuevo Mundo o el Shiraz/Syrah, son una buena opción. 
+
+## Consejos
+
+
+
+- **Elegir opciones saludables**: 
+
+  Opta por proteínas magras como el tofu, el pollo o los mariscos, y verduras frescas de temporada.
+
+- **Controlar las porciones**: 
+
+  Evita el exceso de carbohidratos, como el arroz frito o el chow mein.
+
+- **Reducir el sodio**: 
+
+  Evita la salsa de soja en exceso y opta por versiones bajas en sodio.
+
+- **Elegir alimentos al vapor**: 
+
+  Opta por alimentos al vapor en lugar de fritos.
+
+- **Consumir verduras**: 
+
+  Asegúrate de que las verduras ocupen al menos la mitad del plato.
+
+- **Beber agua o té**: 
+
+  Evita los refrescos y el alcohol.
+
+- **Comer despacio**: 
+
+  Usa los palillos para comer más despacio.
+
+- **Presentar los alimentos de forma atractiva**: 
+
+  Utiliza colores y texturas contrastantes para que el plato sea más atractivo.
+
+- **Marinar la carne**: 
+
+  Marina la carne fresca antes de freírla.
+
+- **Utilizar jengibre fresco**: 
+
+  Utiliza jengibre fresco, no en polvo.
+
+- **Espesar las salsas**:
+
+  Espesa las salsas con una mezcla de maicena y agua fría. 
