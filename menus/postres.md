@@ -55,3 +55,29 @@ El postre que presentaremos a continuación tal vez no es muy conocido, pero pue
 **Cocteles**
 
 - Los cocteles de autor o cremosos son una buena opción para acompañar postres.
+
+## Consejos
+
+**Utiliza ingredientes a temperatura ambiente**
+
+Muchos productos horneados empiezan por la formación de crema de mantequilla y el azúcar, sin embargo, muchas personas no ablandan la mantequilla antes de mezclarla con otros ingredientes. Lo que hace que al final, la textura de los postres no sea la más adecuada.
+
+**Invertir en los utensilios para hornear de calidad**
+
+Siempre vale la pena invertir en utensilios novedosos y de calidad, como bandejas antiadherentes, paletas de madera y plástico, medidores de temperatura o cualquier otra herramienta que aparte de facilitar el trabajo, ayuda a que el resultado final sea apetitoso y visiblemente bien elaborado.
+
+**Medir bien las cantidades**
+
+La repostería incluye la realización de procesos químicos muy delicados. Por eso hay que tener mucho cuidado, por ejemplo al realizar sustituciones de huevo, pero lo que más exacto se debe medir es la mantequilla, porque en ésta se puede notar claramente en el sabor cuando está de más.
+
+**El secreto para la harina perfecta**
+
+Por cada tres tazas de harina, se le quitan 3 cucharaditas de la misma y se agregan 3 de fécula de maíz. Esto hace que el pastel sea más compacto y aguante mejor la cubierta de crema. De esta manera, el pastel resistirá sin hundirse y sin mayores inconvenientes.
+
+**Engrasa los moldes con manteca, no con mantequilla**
+
+Usualmente, leemos en los libros de cocina que los moldes se engrasan con mantequilla y harina. Pero eso nos da como resultado dos problemas: uno es que le queda una capa harinosa al pastel encima y el otro es que no se despega tan fácil del molde. Si cambias la mantequilla por manteca, nunca más tendrás estos problemas.
+
+**Rompe los huevos en un recipiente aparte**
+
+Con esto se evita que las cáscaras caigan en la mezcla y después te sea imposible encontrarlas. De esta manera, puedes encontrarlas y apartarlas antes de que caigan en el recipiente de la batidora.
