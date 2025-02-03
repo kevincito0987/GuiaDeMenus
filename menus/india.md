@@ -19,3 +19,37 @@ La comida india se caracteriza por ser colorida, de sabores y aromas variados. E
 - **Vindaloo**: Un plato de ternera picante.
 
 - **Aloo gobi**: Un plato principal de la comida india. 
+
+## Bebidas Recomendadas
+
+**Vino**
+
+- Sauvignon blanc, Sylvaner, Moscato, Pinot gris, Torrontés, Garnacha tinta, Zinfandel, Pinot Noir.
+
+**Cerveza**
+
+- Kingfisher, Taj Mahal.
+
+**Cócteles** 
+
+- Margaritas picantes, Martinis de mango, Mojitos de jengibre.
+
+**Lassi**
+
+- Bebida tradicional de la India hecha a base de yogur
+- Se puede tomar frío
+- Se puede condimentar con comino, pimienta y otras especias
+
+**Té masala**
+
+- Bebida reconfortante que se prepara con té negro, cardamomo, clavo, jengibre, canela, pimienta, nuez moscada, azúcar de caña o jaggery, y leche
+
+**Sol Kadhi**
+
+- Bebida cremosa que se prepara con leche de coco, hojas de curry y otras especias
+- Es ideal para refrescarse después de un curry caliente
+
+**Nimbu Pani**
+
+- Bebida refrescante con sabor ácido y picante que equilibra los sabores ricos y picantes de la comida india
+
