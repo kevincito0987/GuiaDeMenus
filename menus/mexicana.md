@@ -31,3 +31,12 @@ Tamales
 - Son una opción para el desayuno.
 
 - Chilaquiles Son un desayuno clásico. 
+
+## Bebidas Recomendadas
+- Mezcal. 
+- Raicilla. 
+- Margarita. 
+- Paloma. 
+- Carajillo. 
+- Cervezas Artesanales. 
+- Michelada.
