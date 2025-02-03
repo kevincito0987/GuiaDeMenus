@@ -41,3 +41,34 @@ Bolas de garbanzo fritas en aceite, que se sirven con pan pita.
 **Cuscús**
 
 Plato tradicional del norte de África, que se prepara con la parte dura del trigo y verduras.
+
+## Bebidas Recomendadas
+
+**Agua**
+
+- La bebida por excelencia en la dieta mediterránea.
+
+Vino tinto
+
+- Se recomienda beberlo con moderación, un vaso de 150 ml al día para las mujeres y dos vasos de 150 ml al día para los hombres.
+
+**Café**
+
+- Se puede incluir en la dieta mediterránea, pero es importante no abusar del azúcar.
+
+**Té**
+
+- Es una buena opción, pero si eres sensible a la cafeína, puedes optar por infusiones de hierbas como la manzanilla o la menta.
+
+**Zumos naturales de frutas**
+
+- Son ricos en agua, minerales, vitaminas, antioxidantes y otros micronutrientes.
+
+**Bebidas fermentadas**
+
+- El vino, la cerveza y la sidra han formado parte tradicionalmente de la cultura dietética mediterránea.
+
+**Bebidas alcohólicas**
+
+- La sangría es un ponche alcohólico tradicional de España y Portugal.
+- El rakia es un tipo de licor (parecido al brandy) hecho con ciruelas, uvas, frambuesas rosadas y otras frutas. 
