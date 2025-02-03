@@ -33,6 +33,12 @@ Las carnes se caracterizan por ser el grupo de alimentos que aporta proteínas d
 - El jugo de arándano o de granada son alternativas sin alcohol al vino tinto.
 - El agua infundida es una opción natural que puede complementar platos picantes. 
 
+**Cervezas**
+
+- Las lagers son una buena opción para principiantes.
+- Las stouts y porters añaden complejidad al maridaje con carnes rojas.
+- Las IPAs aportan un toque de amargura.
+
 ## Consejos
 
 - Mantén la carne cruda separada de la cocida.
