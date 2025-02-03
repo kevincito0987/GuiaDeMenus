@@ -42,3 +42,10 @@ A la comida China se le da un sentido del gusto con las artes culinarias basánd
 
 - **Zongzi**: Un triángulo de arroz glutinoso relleno de carne o judías dulces y enrollado en hojas de bambú. 
 
+## Bebidas Recomendadas
+
+- El té rojo frío es un clásico de los restaurantes chinos. Se cree que tiene propiedades digestivas y ayuda a reducir el colesterol.
+- El té de jazmín es popular por sus efectos relajantes y por ser rico en antioxidantes.
+- Los vinos espumosos como el champán o el Prosecco son una buena opción.
+- Los vinos blancos secos o semisecos de cuerpo ligero a medio son una buena opción.
+- Los vinos tintos con mucha fruta madura y acidez moderada, como el Malbec, el Cabernet del Nuevo Mundo o el Shiraz/Syrah, son una buena opción. 
